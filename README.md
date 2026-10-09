@@ -1,11 +1,8 @@
-## <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/caff7b81-658a-49d5-bf47-bd48b034b114" /> B4 YOU INTERACT <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/caff7b81-658a-49d5-bf47-bd48b034b114" />
-I fictkin as Feliciano Vargas (Italy). if you're also a fictkin of him, PLEASE DNI (kins iwec).
+## <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/caff7b81-658a-49d5-bf47-bd48b034b114" /> ciao
+I fictkin as Feliciano Vargas (Italy). if you're also a fictkin of him, kindly dni & block
+<br> gerita selfinsert & Germany's gachikoi <3
+nonsharing 2p!italy
 
-interact before sending requests, sometimes I can be overwhelmed with you interacting a little longer(unless I do). You can c+h unless there's a boundary in my name. ships can interact, with a note that you will interact with caution because sometimes I would get uncomfortable.
-
-I would get shy when I tried to interact with someone and I could be rude because how shy I am 😿
-
-if I ever feel uncomfortable around you, I can block you because *I block freely.*
 
 <img width="150" height="46" alt="Image" src="https://github.com/user-attachments/assets/7041eb0e-c847-49f4-8a54-0fe8cce9ff87" />
 
