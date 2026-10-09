@@ -1,9 +1,10 @@
 ## <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/caff7b81-658a-49d5-bf47-bd48b034b114" /> ciao
 I fictkin as Feliciano Vargas (Italy). if you're also a fictkin of him, kindly dni & block
-<br> gerita selfinsert & Germany's gachikoi <3
+<br> gerita selfinsert & Ludwig's gachikoi <3
 nonsharing 2p!italy
 
-
+<img width="664" height="506" alt="Image" src="https://github.com/user-attachments/assets/0fe489e3-cfb1-46e6-b5b2-07cffa56fb28" />
+I'M MARRIED!!!!!!! TO LUDWIG!!!!!!!!!!
 <img width="150" height="46" alt="Image" src="https://github.com/user-attachments/assets/7041eb0e-c847-49f4-8a54-0fe8cce9ff87" />
 
 <!--
