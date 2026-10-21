@@ -2,6 +2,7 @@
 I fictkin as Feliciano Vargas (Italy). if you're also a fictkin of him, kindly dni & block
 <br> gerita selfinsert & Ludwig's gachikoi <3
 nonsharing 2p!italy
+I hide ppl who has Italy (any kind) as their skin...... I'm sorry okke :( only 15 mins yay
 
 <img width="664" height="506" alt="Image" src="https://github.com/user-attachments/assets/0fe489e3-cfb1-46e6-b5b2-07cffa56fb28" />
 I'M MARRIED!!!!!!! TO LUDWIG!!!!!!!!!!
